@@ -1,1 +1,1 @@
-A place for interesting insigts about Steem blockchain economics and social life
+A place for interesting insights about Steem blockchain economics and social life
